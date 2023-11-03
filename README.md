@@ -6,3 +6,6 @@
 ## Link videoclip tema 2
 - https://youtu.be/eRoRq7asdHY?si=r92mEEjRzPNoMJxS (filmat cu telefonul)
 - https://drive.google.com/file/d/1J3cgyw_cAj2XRejKT_wTyFxNubsE8MAn/view?usp=drive_link (filmat cu OBS, dar se vede rau)
+
+## Link videoclip tema 3
+- https://youtu.be/_MZ24oAE_yQ?si=e3pgUkNDgOL7lkEX 
